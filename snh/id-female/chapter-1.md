@@ -28,4 +28,3 @@ Kawanan yang tetap berjarak, bekal keluarga, panggilan pulang, langit luas, dan 
 ## Kait ke bab berikutnya
 
 Upaya Laras menghindari manusia membawanya tepat ke jerat yang dipasang manusia.
-

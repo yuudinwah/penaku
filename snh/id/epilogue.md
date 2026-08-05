@@ -29,4 +29,3 @@ Bau tanah basah, kain yang tidak dijual, bulu putih, dua jenis jejak, dua piring
 ## Kesan akhir
 
 Pahit-manis, tenang, dan terbuka: entah dalam rupa apa mereka mengingat satu sama lain setelah malam itu, keduanya pernah menjadi alasan bagi yang lain untuk tetap hidup.
-

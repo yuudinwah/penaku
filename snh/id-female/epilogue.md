@@ -29,4 +29,3 @@ Jendela terbuka, dua jenis jejak, panggilan nama, dua tangan penyelamat, kain ya
 ## Kesan akhir
 
 Laras tidak pernah melupakan tangan yang membebaskannya dari jerat. Entah di mana atau dalam rupa apa ingatan itu berada, Jaka pernah menjadi alasan ia mengenal rumah—dan ia pernah menjadi alasan Jaka tetap hidup.
-

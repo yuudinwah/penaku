@@ -30,4 +30,3 @@ Satu hari lagi, porsi berlebih, naluri yang disembunyikan, langkah pulang, peker
 ## Kait ke bab berikutnya
 
 Gunjingan warga mengancam tempat sementara yang diam-diam telah Laras anggap sebagai rumah.
-

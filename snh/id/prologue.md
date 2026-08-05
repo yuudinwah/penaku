@@ -27,4 +27,3 @@ Lampu yang hampir padam, tangan yang terulur, bulu putih, kain yang bergerak sep
 ## Kait ke bab berikutnya
 
 Narasi mundur ke masa ketika rumah Jaka hanya dihuni satu orang dan pertanyaan tentang kehilangan belum memiliki nama.
-

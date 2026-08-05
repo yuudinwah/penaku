@@ -13,7 +13,7 @@ Memberi Jaka kebenaran yang selama ini ia hindari dan memaksanya menjawab identi
 5. Bulu putih, darah, kain, dan perubahan siluet memanggil ingatan tentang kuntul kerbau dalam badai.
 6. Jaka memahami bahwa tubuh Laras sendiri telah menjadi harga setiap obat. Rasa syukur seketika berubah menjadi rasa bersalah yang nyaris membuatnya mundur.
 7. Ia menyadari mundur hanya akan meninggalkan Laras sendirian sekali lagi dan mengulurkan tangan.
-8. Laras bertanya apakah ia masih dicintai jika bukan manusia.
+8. Laras bertanya, “Apakah kau akan tetap mencintaiku, meskipun aku bukan lagi manusia?”
 9. Jaka menjawab tanpa syarat. Ia mencintai Laras sebelum memahami siapa dirinya dan kebenaran tidak menghapus tiga tahun kehidupan mereka.
 10. Hujan badai memadamkan lampu. Jaka meraih sosok di hadapannya tanpa mengetahui rupa apa yang akan disentuh.
 
@@ -32,4 +32,3 @@ Hampir setahun, pohon roboh, pintu yang akhirnya dicapai, bulu dan darah, jerat 
 ## Kait ke bab berikutnya
 
 Jaka bangun dengan ingatan terpotong dan harus menjalani hidup tanpa kepastian bahwa orang yang menyelamatkannya masih dapat kembali.
-

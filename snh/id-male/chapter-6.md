@@ -29,4 +29,3 @@ Hasil cacat yang tetap berguna, tabungan tanah, suara langkah, nyanyian, kawanan
 ## Kait ke bab berikutnya
 
 Ketika sawah retak, Jaka mencoba membayar rasa takutnya dengan kerja sampai tubuhnya sendiri menyerah.
-

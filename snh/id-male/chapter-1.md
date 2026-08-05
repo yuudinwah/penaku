@@ -28,4 +28,3 @@ Hitungan sewa, satu piring, lelucon yang menyakiti diri sendiri, rumah bocor, da
 ## Kait ke bab berikutnya
 
 Ketika badai mendekat, Jaka terlambat meninggalkan sawah karena merasa hasil kerja adalah satu-satunya hal yang tidak boleh gagal ia lindungi.
-

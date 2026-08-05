@@ -28,4 +28,3 @@ Satu piring, satu tikar, kebocoran di tiga tempat, suara keluarga tetangga, dan 
 ## Kait ke bab berikutnya
 
 Langit menghitam lebih cepat dari biasanya ketika Jaka bekerja terlalu jauh dari rumah.
-

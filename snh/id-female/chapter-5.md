@@ -30,4 +30,3 @@ Bekal yang tidak dibawa, utang yang selesai, janji manusia, ikatan yang dipilih,
 ## Kait ke bab berikutnya
 
 Selama tiga tahun, Laras belajar bahwa menjadi istri tidak menghapus kebebasannya—tetapi memperbesar ketakutannya kehilangan rumah.
-

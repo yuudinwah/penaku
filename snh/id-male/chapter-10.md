@@ -30,4 +30,3 @@ Jerat yang berubah bentuk, obat yang ditolak, rumah tanpa suara, langkah yang di
 ## Kait ke bab berikutnya
 
 Jaka berhenti mencoba mengusir Laras, tetapi belum mampu menghentikan rahasia yang mencapai harga terakhirnya.
-

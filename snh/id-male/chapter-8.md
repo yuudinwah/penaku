@@ -30,4 +30,3 @@ Hari tanpa nama, ruang pandang dari ranjang, tempat perhiasan kosong, pintu terk
 ## Kait ke bab berikutnya
 
 Saat tangan Laras masuk ke jangkauan pandangnya, dugaan Jaka memperoleh bentuk yang tidak dapat lagi diabaikan.
-

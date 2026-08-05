@@ -30,4 +30,3 @@ Satu kali lagi, sisa bulu, pelukan dari belakang, tangan dingin, pengakuan yang 
 ## Kait ke bab berikutnya
 
 Tubuh Laras semakin jelas rusak, dan Jaka memilih melukai perasaannya untuk menghentikan pengorbanan yang belum ia pahami.
-

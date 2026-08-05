@@ -30,4 +30,3 @@ Gunjingan, bekal untuk pergi, pilihan yang diucapkan, dua piring, hujan tipis, d
 ## Kait ke bab berikutnya
 
 Cerita melompat melalui tiga tahun pernikahan untuk menunjukkan apa yang mereka bangun sebelum kemarau merenggutnya.
-

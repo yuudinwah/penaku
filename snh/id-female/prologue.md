@@ -28,4 +28,3 @@ Bulu terakhir, rasa sakit yang akrab, langkah Jaka, wajah yang ditunggu, pertany
 ## Kait ke bab berikutnya
 
 Cerita kembali ke masa ketika Laras memiliki langit luas, tetapi belum mengetahui arti sebuah tempat pulang.
-

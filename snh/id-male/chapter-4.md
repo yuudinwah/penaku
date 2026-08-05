@@ -29,4 +29,3 @@ Perbaikan diam-diam, bekal dari nasi berlebih, suara langkah, orang yang menungg
 ## Kait ke bab berikutnya
 
 Gunjingan warga memberi Jaka alasan terhormat untuk melakukan hal yang paling ia takuti: menyuruh Laras pergi.
-

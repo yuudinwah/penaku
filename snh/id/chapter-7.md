@@ -30,4 +30,3 @@ Tanah retak, air yang menyusut, tangan yang kehilangan tenaga, cangkul di dekat 
 ## Kait ke bab berikutnya
 
 Kemarau berakhir tanpa membawa kesembuhan; bulan-bulan berikutnya hilang di antara demam, biaya, dan pekerjaan yang tidak tersentuh.
-

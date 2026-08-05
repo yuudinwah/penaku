@@ -29,4 +29,3 @@ Hasil panen yang tidak sempurna, rumah yang diperbaiki sedikit demi sedikit, nya
 ## Kait ke bab berikutnya
 
 Kemarau panjang mengubah rencana membeli tanah menjadi perjuangan mempertahankan panen yang tersisa.
-

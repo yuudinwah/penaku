@@ -30,4 +30,3 @@ Masakan dari hasil buruk, masa depan manusia, kawanan yang melintas, suara langk
 ## Kait ke bab berikutnya
 
 Kemarau mengancam tubuh Jaka, satu-satunya bagian rumah yang tidak dapat Laras perbaiki dengan pekerjaan biasa.
-

@@ -30,4 +30,3 @@ Hitungan tanaman, satu petak lagi, tabungan tanah, permintaan maaf, jatuh di pin
 ## Kait ke bab berikutnya
 
 Hari-hari Jaka menyempit menjadi ranjang dan suara Laras bekerja di ruangan lain.
-

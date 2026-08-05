@@ -30,4 +30,3 @@ Tanda cuaca, tubuh panas, satu petak lagi, tabungan masa depan, jerat tubuh, dan
 ## Kait ke bab berikutnya
 
 Ketika cara-cara manusia menghabiskan uang tanpa menyembuhkan Jaka, Laras mengingat kemampuan yang selama ini ia sembunyikan.
-

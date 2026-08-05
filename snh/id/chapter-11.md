@@ -32,4 +32,3 @@ Pohon roboh, jerat penyakit, bulu terakhir, tangan terulur, pertanyaan ketiga, j
 ## Kait ke bab berikutnya
 
 Pagi setelah badai hanya menyisakan bukti-bukti yang dapat dibaca dengan lebih dari satu cara.
-

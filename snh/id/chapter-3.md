@@ -29,4 +29,3 @@ Emper sebagai ruang di antara pergi dan masuk, pakaian basah, bubur hangat, tika
 ## Kait ke bab berikutnya
 
 Pagi berikutnya cuaca membaik, tetapi Laras menemukan satu pekerjaan kecil yang menurutnya harus diselesaikan sebelum pergi.
-

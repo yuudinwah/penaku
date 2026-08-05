@@ -30,4 +30,3 @@ Tangan kasar, pelukan dari belakang, genggaman di dada, kain putih, suara tenun,
 ## Kait ke bab berikutnya
 
 Kecurigaan dan rasa bersalah mendorong Jaka memilih cara paling kejam yang ia tahu untuk menghentikan Laras: membuatnya pergi.
-

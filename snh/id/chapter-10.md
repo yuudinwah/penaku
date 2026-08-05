@@ -30,4 +30,3 @@ Rumah yang kembali sunyi, wadah yang jatuh, jalan ke hutan, suara langkah pulang
 ## Kait ke bab berikutnya
 
 Rekonsiliasi tidak menghentikan penyakit. Saat kemarau kembali dan satu pohon roboh, Laras mengambil keputusan terakhir.
-

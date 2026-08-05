@@ -9,7 +9,7 @@ Membuka dari kesadaran Jaka saat semua petunjuk yang diabaikannya bertemu. Keteg
 1. Jaka memaksa tubuhnya yang belum pulih menuju ruang belakang ketika hujan badai mengguncang rumah.
 2. Setiap langkah memunculkan ingatan singkat tentang obat, kain putih, dan tangan Laras yang semakin dingin.
 3. Dari ambang pintu ia melihat Laras dalam siluet yang tidak sepenuhnya manusia; rasa takutnya segera dikalahkan rasa bersalah.
-4. Laras bertanya apakah ia masih akan dicintai jika bukan manusia.
+4. Laras bertanya, “Apakah kau akan tetap mencintaiku, meskipun aku bukan lagi manusia?”
 5. Jaka tahu jawabannya, tetapi takut Laras sudah membayar terlalu mahal untuk sempat mempercayainya.
 6. Lampu padam sebelum jawaban terdengar.
 
@@ -28,4 +28,3 @@ Napas pendek, langkah yang dipaksakan, tangan yang terlambat terulur, cahaya yan
 ## Kait ke bab berikutnya
 
 Cerita kembali ke masa ketika Jaka menganggap kesepian sebagai nasib yang lebih mudah diterima daripada penolakan.
-

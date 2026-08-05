@@ -29,4 +29,3 @@ Emper, rasa salah rumah, bubur encer, tikar terbaik, jarak aman, dan pertanyaan 
 ## Kait ke bab berikutnya
 
 Ketika Laras menunda pergi, harapan Jaka tumbuh lebih cepat daripada keberaniannya mengakui.
-

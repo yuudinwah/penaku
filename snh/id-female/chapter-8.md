@@ -12,7 +12,7 @@ Memperlihatkan keputusan pertama Laras melanggar tubuhnya. Pengorbanan dimulai k
 4. Ia membersihkan ruang belakang, memasang atau meminjam alat tenun, dan menetapkan aturan: hanya mengambil sedikit, hanya satu kain.
 5. Pada malam pertama, Laras berubah menjadi kuntul dan mencabut beberapa bulu. Rasa sakit jauh lebih besar daripada yang diingatnya.
 6. Ia menenun sampai fajar, kembali menjadi manusia, dan menyembunyikan luka di balik lengan.
-7. Pedagang membayar mahal tanpa mengetahui bahan kain. Uang digunakan untuk tabib, obat, makanan, dan sewa.
+7. Pedagang membayar mahal untuk kain pertama itu tanpa mengetahui bahannya. Uang digunakan untuk tabib, obat, makanan, dan sewa.
 8. Saat Jaka membaik, Laras menganggap sakitnya sendiri harga yang berhasil. Ketika Jaka kambuh, ia berkata masih dapat membuat satu kain lagi.
 
 ## Konflik batin
@@ -30,4 +30,3 @@ Aturan “hanya satu”, bulu yang dicabut, fajar, luka tersembunyi, kain sebaga
 ## Kait ke bab berikutnya
 
 Satu kain menjadi beberapa, dan tubuh manusia Laras mulai memperlihatkan kerusakan yang tidak dapat ditutup pakaian.
-

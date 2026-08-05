@@ -6,7 +6,7 @@ Membuat pertolongan Jaka terasa luar biasa dari sudut Laras. Ia menyaksikan kera
 
 ## Urutan adegan
 
-1. Tali menjerat kaki dan sayap Laras ketika badai menutup pandangan. Semakin ia meronta, semakin dalam duri melukai tubuh.
+1. Tali menjerat kaki dan sayap Laras dalam tubuh kuntul kerbau ketika badai menutup pandangan. Semakin ia meronta, semakin dalam duri melukai tubuh.
 2. Bau manusia dan langkah Jaka membuatnya yakin akhir telah tiba.
 3. Laras melihat Jaka menilai tubuhnya dan memahami tatapan lapar; ketakutannya berubah menjadi kemarahan pada kebodohan sendiri.
 4. Jaka berhenti setelah melihat matanya. Laras tidak dapat membaca alasannya dan tetap meronta ketika tangan mendekat.
@@ -30,4 +30,3 @@ Jerat buatan manusia, mata yang saling menilai, pisau yang membebaskan, darah pa
 ## Kait ke bab berikutnya
 
 Laras mengambil rupa manusia dengan niat mengucapkan terima kasih sekali, lalu pergi sebelum pertolongan berubah menjadi ikatan.
-

@@ -29,4 +29,3 @@ Jerat, tangan terluka, sobekan kain, sayap yang sulit terbuka, dan badai yang me
 ## Kait ke bab berikutnya
 
 Badai tidak berhenti sepanjang malam, memaksa Jaka tetap berada di rumah keesokan harinya.
-

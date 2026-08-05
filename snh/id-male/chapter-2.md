@@ -30,4 +30,3 @@ Perut kosong, jerat, luka pada tangan, sobekan kain, dan kekayaan yang tidak dap
 ## Kait ke bab berikutnya
 
 Badai menahannya di rumah, tempat kebaikan tanpa pamrih itu kembali dalam rupa yang tidak ia kenali.
-

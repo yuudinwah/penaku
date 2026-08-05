@@ -9,7 +9,7 @@ Menjelaskan kedatangan Laras tanpa menghilangkan kecanggungan. Ia belum datang u
 1. Laras mengambil rupa manusia ketika badai masih menutup dusun. Luka sayap muncul sebagai lemah dan nyeri pada bahu.
 2. Ia menemukan rumah Jaka dari bau kain pembalut dan jejak yang sempat diingatnya.
 3. Laras berniat mengetuk, mengucapkan terima kasih dengan cara manusia, lalu pergi. Keberanian hilang ketika melihat Jaka dari dekat.
-4. Ia berteduh di emper dan membiarkan Jaka menemukannya, memakai hujan sebagai alasan yang tidak perlu menjelaskan masa lalu.
+4. Ia berteduh di emper dan membiarkan Jaka menemukannya, memakai hujan sebagai alasan yang tidak perlu menjelaskan masa lalu. Ketika angin mendorong air sampai ke emper, Jaka mengajaknya masuk.
 5. Benda rumah, pakaian, dan bubur terasa asing. Laras meniru gerak Jaka agar tidak terlihat berbeda.
 6. Ketika Jaka menyerahkan tikar dan memilih dapur, Laras menyadari kebaikan yang sama diberikan kepadanya dalam dua rupa.
 7. Ia berkata tidak memiliki tujuan. Jaka menawarkan tempat sampai cuaca membaik.
@@ -30,4 +30,3 @@ Rupa pinjaman, bahu yang nyeri, bau sobekan kain, emper, peniruan kebiasaan manu
 ## Kait ke bab berikutnya
 
 Pekerjaan balas budi yang seharusnya selesai sehari menghasilkan alasan baru untuk tinggal.
-

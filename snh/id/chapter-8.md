@@ -30,4 +30,3 @@ Bulan yang kabur, atap bocor, pintu terkunci, suara tenun pada malam hari, kain 
 ## Kait ke bab berikutnya
 
 Obat memperpanjang harapan, tetapi setiap lembar kain meninggalkan luka yang semakin sulit disembunyikan.
-

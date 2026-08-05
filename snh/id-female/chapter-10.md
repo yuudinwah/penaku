@@ -30,4 +30,3 @@ Tepi hutan, sayap yang dapat dipilih, langit yang tidak lagi cukup, kemarahan se
 ## Kait ke bab berikutnya
 
 Setelah memilih pulang, Laras berhenti menyebut tindakan terakhirnya sebagai balas budi.
-

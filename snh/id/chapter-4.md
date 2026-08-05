@@ -29,4 +29,3 @@ Satu hari lagi, porsi nasi, bagian atap yang tidak lagi bocor, langkah pulang, a
 ## Kait ke bab berikutnya
 
 Kebersamaan mereka mulai terlalu lama untuk dianggap kebetulan, dan warga dusun mulai membicarakan Laras.
-

@@ -32,4 +32,3 @@ Hampir setahun, pohon roboh, jalan keluar yang nyata, bulu terakhir, dua rupa ya
 ## Kait ke bab berikutnya
 
 Kesadaran Laras bergerak memasuki gelap, dan pagi hanya menyimpan benda serta jejak yang tidak dapat menjelaskan akhir.
-

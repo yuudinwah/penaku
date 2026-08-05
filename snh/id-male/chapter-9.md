@@ -30,4 +30,3 @@ Tubuh yang berlawanan arah, tangan di dada, pertanyaan yang dilemahkan, penerima
 ## Kait ke bab berikutnya
 
 Karena tidak mampu mencapai ruang tenun, Jaka memilih menyerang alasan Laras untuk tetap berada di rumah.
-

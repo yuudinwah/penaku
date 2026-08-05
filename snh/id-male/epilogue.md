@@ -29,4 +29,3 @@ Kain yang tidak dijual, tanah yang tidak dibeli, dua piring, panggilan tanpa jaw
 ## Kesan akhir
 
 Jaka tidak pernah melupakan tangan penuh luka yang menariknya kembali dari kematian. Kehilangan tetap terasa, tetapi rasa syukur tidak lagi ia gunakan untuk menghukum dirinya.
-

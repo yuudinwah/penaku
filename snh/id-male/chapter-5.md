@@ -30,4 +30,3 @@ Bekal perpisahan, daftar kekurangan, janji tanpa kemewahan, dua piring, dan keba
 ## Kait ke bab berikutnya
 
 Tiga tahun pernikahan memberi Jaka alasan untuk percaya, sekaligus semakin banyak hal yang dapat ia kehilangan.
-
